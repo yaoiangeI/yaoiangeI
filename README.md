@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=yaoiangeI&color=aee4ee&style=for-the-badge) ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
-[my strawpage !](https://forbiddenyaoi.straw.page)  |  [atabook](https://yaoiangel.atabook.org) | [wall of text ;3](https://walloftext.co/yaoiangel)
+[my strawpage !](https://forbiddenyaoi.straw.page)  |  [atabook](https://yaoiangel.atabook.org) | [rentry](https://rentry.co/mizuzai)
 ***
 ## BYI / BYF ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 - calling other queer people invalid is internalized queerphobia i fear. if you disagree with that you're just in denial. get a life and stop harrassing your fellow queers. harass homophobes instead.
