@@ -7,7 +7,6 @@
 ***
 ## BYI / BYF ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 - calling other queer people invalid is internalized queerphobia i fear. if you disagree with that you're just in denial. get a life and stop harrassing your fellow queers. harass homophobes instead.
-- I am a **PROSHIPPER** !! Please don't interact with me if all you're going to do is complain about it please ,,
 - I'm annoying as hell!! 
 - I'm 14 so keep in mind what you say too me ^^'
 - Very possible that I will get mad by anyone who likes my interests (I don't know why I do this IM SORRY)
