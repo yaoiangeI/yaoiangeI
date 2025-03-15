@@ -1,5 +1,5 @@
 # 𓈖𓈖𓈖 Hello Pony Towners !! 𓈖𓈖𓈖𓈖⋆｡˚𓆝𓆟𓆞⋆｡˚𓈖𓈖𓈖𓈖𓈖𓈖
-![dazai osamu](https://i.pinimg.com/736x/77/73/da/7773da846d1b22ba424501a32849630f.jpg)
+![dazai osamu](https://media.discordapp.net/attachments/1342695226070007910/1350525644471009300/GmBlI_dXMAAmvxr.png?ex=67d70e85&is=67d5bd05&hm=be66a5c7ba1afc5d97b4f8a9e892d85a99925b7d299fc10a1f6e3e1e8ad5a5ae&=&format=webp&quality=lossless&width=903&height=856)
 
 ![](https://komarev.com/ghpvc/?username=yaoiangeI&color=aee4ee&style=for-the-badge) ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
