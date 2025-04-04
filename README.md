@@ -2,6 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=yaoiangeI&color=aee4ee&style=for-the-badge) ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
+![](https://i.postimg.cc/g2J97Whf/obraz-2025-04-04-235039795.png)
+
 [atabook](https://yaoiangel.atabook.org) | [rentry](https://rentry.co/mizuzai)
 ***
 ## BYI / BYF ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
