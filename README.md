@@ -3,9 +3,9 @@
 ***
 <sup>readme work in progress.</sup>
 
-STOP FOLLOWING ME IF YOU HAVE MINORS DNI OR -15 DNI IM 14 LEAVE ME ALONEEE
+STOP FOLLOWING ME IF YOU HAVE MINORS DNI IM 15.
 
 ![image](https://github.com/user-attachments/assets/c55add60-bcff-4ba0-9b16-2ea1016f6759)
 
-# [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) [atabook](https://yaoiangel.atabook.org) 
-sign my ata btw
+# [atabook](https://yaoiangel.atabook.org) [strawpage](https://mizuzai.straw.page)
+sign my ata & strawpage pls :( i dont bite
