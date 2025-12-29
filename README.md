@@ -8,5 +8,4 @@
 STOP FOLLOWING ME IF YOU HAVE MINORS DNI IM 15.
 
 # [atabook](https://yaoiangel.atabook.org)
-sign my ata & strawpage pls :( i dont bite
-# [strawpage](https://izunauchiha.straw.page)
+sign my ata pls :( i dont bite
