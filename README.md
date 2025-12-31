@@ -7,5 +7,5 @@
 #  NARUTO FANS HMU 
 STOP FOLLOWING ME IF YOU HAVE MINORS DNI IM 15.
 
-# [atabook](https://yaoiangel.atabook.org)
-sign my ata pls :( i dont bite
+# [atabook](https://yaoiangel.atabook.org) [strawpage](https://izunauchiha.straw.page)
+sign my ata & straw pls :( i dont bite
