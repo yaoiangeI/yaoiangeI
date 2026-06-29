@@ -5,7 +5,7 @@
 ***
 ### I dont respond to messages with special fonts or typing quirks. grow up
 #  NARUTO FANS HMU 
-STOP FOLLOWING ME IF YOU HAVE MINORS DNI IM 15.
+STOP FOLLOWING ME IF YOU HAVE MINORS DNI IM 16.
 
 # [atabook](https://yaoiangel.atabook.org) [strawpage](https://izunauchiha.straw.page)
 sign my ata & straw pls :( i dont bite
